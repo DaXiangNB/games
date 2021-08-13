@@ -14,6 +14,8 @@
 
 ## [植物大战姜丝](https://share.weiyun.com/OpbQcxtK)
 
+## [斗鱼云游戏（需要斗鱼账号）](https://cloudgame.douyu.com/directory)
+
 
 
 
