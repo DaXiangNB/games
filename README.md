@@ -1,12 +1,17 @@
 # games
-四中微机课必备单机游戏
+四中微机课必备软件/游戏
 
 
-## [壁纸软件](https://share.weiyun.com/iyYv3nn5)
+## [壁纸软件](https://share.weiyun.com/s2lUrQ4e)
 
 ## [泰拉瑞亚](https://share.weiyun.com/2prznlDO)
 
 ## [我的世界](https://share.weiyun.com/YW5YbdL6)
+
+## [百度网盘](https://pan.baidu.com/download)
+
+## [Adode全家桶](https://share.weiyun.com/q5J7YSR8)
+
 
 
 
