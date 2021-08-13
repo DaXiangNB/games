@@ -16,7 +16,7 @@
 
 ## [斗鱼云游戏（需要斗鱼账号）](https://cloudgame.douyu.com/directory)
 
-
+## [微云](www.weiyun.com)
 
 
 ## 向我们提供新的游戏以放在此网站
