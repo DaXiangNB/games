@@ -20,6 +20,8 @@
 
 ## [杰哥同人游戏](https://share.weiyun.com/dfXavi0P)
 
+## [死亡细胞](https://share.weiyun.com/K7SPNSrc)
+
 
 ## 向我们提供新的游戏以放在此网站
 
