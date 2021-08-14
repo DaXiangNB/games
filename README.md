@@ -4,7 +4,7 @@
 
 ## [壁纸软件](https://share.weiyun.com/s2lUrQ4e)
 
-## [泰拉瑞亚](https://share.weiyun.com/2prznlDO)
+## [泰拉瑞亚](https://share.weiyun.com/ihTUqiej)
 
 ## [我的世界](https://share.weiyun.com/YW5YbdL6)
 
