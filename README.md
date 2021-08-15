@@ -1,6 +1,9 @@
 # games
 四中微机课必备软件/游戏
 
+度盘不限速教程：
+左上角齿轮，点设置，传输，下载提速，开
+
 
 ## [壁纸软件](https://share.weiyun.com/s2lUrQ4e)
 
@@ -21,6 +24,19 @@
 ## [杰哥同人游戏](https://share.weiyun.com/dfXavi0P)
 
 ## [死亡细胞](https://share.weiyun.com/K7SPNSrc)
+
+## [求生之路二](https://pan.baidu.com/s/1hYMuZfZgqezOXazoPXi57g)提取码: h6we
+
+## [饥荒](https://pan.baidu.com/s/1YKwiqoluySo_NZ2K13Z5Wg)提取码: 6638
+
+## [环世界](https://pan.baidu.com/s/10GzZlM0ChNZLMPRN3l930A)提取码: wxvs
+
+## [笨币人类模拟器](https://pan.baidu.com/s/14xIaqgtCAeT4JDN7Z-k_bQ)提取码: p69n
+
+## [无主之地2](https://pan.baidu.com/s/1pLiuWkj)
+
+## [逃脱者2](https://pan.baidu.com/s/1w5KPYFthDo26Efnp5cGK9Q)
+
 
 
 ## 向我们提供新的游戏以放在此网站
