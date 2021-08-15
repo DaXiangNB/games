@@ -1,6 +1,8 @@
 # games
 四中微机课必备软件/游戏
 
+<iframe frameborder="no" border="0" marginwidth="0" marginheight="0" width=330 height=86 src="//music.163.com/outchain/player?type=2&id=1424964170&auto=1&height=66"></iframe>
+
 度盘不限速教程：
 左上角齿轮，点设置，传输，下载提速，开
 
